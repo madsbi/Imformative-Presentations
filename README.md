@@ -1,2 +1,2 @@
 # Informative-Presentations
-I make presentations for fun educating people on certain topics. This is a passion of my and I hope you enjoy them.
+I do these presentations for fun to educate people on certain topics and I hope you enjoy them.
